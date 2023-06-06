@@ -1,4 +1,7 @@
-## Hi there 👋
+## Leading the fight for economic justice
+### We’re committed to helping the underserved build generational wealth through access to affordable mortgages and financial assistance.
+
+
 
 <!--
 
